@@ -6,4 +6,6 @@ These are not 100% accurate, I recreated these in FL Studio by ear and with help
 
 I don't take requests.
 
-amogus
+If you're one of the composers of the songs listed above and don't want a recreation public, DM me on Discord for removal 
+
+**ThatBnuuyAlex#6718**
